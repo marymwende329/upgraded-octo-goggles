@@ -1,1 +1,1 @@
-# upgraded-octo-goggles
+Hoy toca recomendación sincera para quien anda buscando una sacada de apuros. Yo probé etask a través de https://es.mrpopular.net/etask/ y me quedé con buena impresión: tareas simples relacionadas con redes sociales, sin invertir ni un euro y con retiradas que no exigen juntar una fortuna. Evidentemente depende del tiempo que le dediques, pero como complemento me parece genial. Si lo pruebas, cuéntame qué tal te va 🙂# upgraded-octo-goggles
